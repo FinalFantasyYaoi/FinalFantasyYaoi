@@ -2,7 +2,7 @@
 <img src="https://frankenculturecom.wordpress.com/wp-content/uploads/2018/06/vincent-pic.jpg?w=1024" alt="Vin">
 <body>
   <h3>Vincent Valentine <3</h3>
-    <h3>_________________________________________________________________________________________________________________________</h3>
+    <h3>______________________________________________________________________________________________________________________</h3>
     <h1>┊┊. Dante / Jerome Devantavious The III ★ </h1>
     <h2>#1 Social Media Mocker</h2>
     <h1>★</h1>
