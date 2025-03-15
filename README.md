@@ -1,5 +1,14 @@
-## Hi there 👋
-
+## TheFinalYaoi
+<img src="https://frankenculturecom.wordpress.com/wp-content/uploads/2018/06/vincent-pic.jpg?w=1024" alt="Vin">
+<body>
+  <h3>Vincent Valentine <3</h3>
+    <h3>_________________________________________________________________________________________________________________________</h3>
+    <h1>┊┊. Dante / Jerome Devantavious The III ★ </h1>
+    <h2>#1 Social Media Mocker</h2>
+    <h1>★</h1>
+    <h3>Please read! https://rentry.co/FinalFantasyYaoi </h3>
+    <h3>Finished reading? Check out and sign https://rikusuriuri.straw.page/ </h3>
+</body>
 <!--
 **FinalFantasyYaoi/FinalFantasyYaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
