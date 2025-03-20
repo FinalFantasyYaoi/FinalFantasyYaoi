@@ -10,6 +10,7 @@
     <h1>★</h1>
     <h3>Please read! https://rentry.co/FinalFantasyYaoi </h3>
     <h3>Finished reading? Check out and sign https://rikusuriuri.straw.page/ </h3>
+    <h3>My Face Reveal -> https://rentry.co/11MDfacereveal </h3>
      <img src="https://64.media.tumblr.com/949995140a9dd31f56ac2a7861d2a045/da52b5757336ea6e-e3/s540x810/69c3d0ab21d78192fbb1a7a9325f53887bdeec7a.gifv" alt="VincentBed" ">
 </body>
 <!--
