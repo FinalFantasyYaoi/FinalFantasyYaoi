@@ -2,6 +2,7 @@
 <h2>𝙏𝙝𝙚 𝙊𝙣𝙡𝙮 𝙔𝙖𝙤𝙞 𝙃𝙚𝙧𝙚 𝙄𝙨 𝙔𝙤𝙪𝙧𝙨. 𝘼𝙣𝙙 𝙒𝙚 𝙎𝙝𝙖𝙡𝙡 𝘽𝙚 𝙄𝙩'𝙨 𝙁𝙞𝙣𝙖𝙡 𝙒𝙞𝙩𝙣𝙚𝙨𝙨 ⋆ ★.┊┊</h2>
 <img src="https://frankenculturecom.wordpress.com/wp-content/uploads/2018/06/vincent-pic.jpg?w=1024" alt="Vin">
 <body>
+  <h3>IM A SEFIKURA SHIPPER.</h3>
   <h3>Vincent Valentine <3</h3> 
     <img src="https://64.media.tumblr.com/279ffd7783f412cffeb16a9ac3ae2859/a5b6896041f0ab1d-30/s100x200/028fe55774a5933b479f63cbc01813e1c3939831.jpg" alt="BrickEater" style="width:px;height:px;">
     <h3>____________________________________________________________________________________________________________________</h3>
