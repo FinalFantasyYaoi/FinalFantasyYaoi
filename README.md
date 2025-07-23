@@ -3,7 +3,7 @@
 <img src="https://pbs.twimg.com/media/GLQXpOFWAAA7scS.jpg" alt="Vin">
 <body>
   <h1>Our group is sefikura shippers</h1>
-    <h3>I hide/block easily. got blocked/hidden and your wondering why?: feel free to whisp and ask ^^</h3>
+    <h3>I hide/block easily. wondering why? you can ask if you wanna </h3>
   <h3>Vincent Valentine <3</h3> 
     <img src="https://64.media.tumblr.com/279ffd7783f412cffeb16a9ac3ae2859/a5b6896041f0ab1d-30/s100x200/028fe55774a5933b479f63cbc01813e1c3939831.jpg" alt="BrickEater" style="width:px;height:px;">
     <h3>____________________________________________________________________________________________________________________</h3>
